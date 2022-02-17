@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm an ADHD Creative and you can find my lat
+I'm a writer, designer, developer, maker of things. I have ADHD and write about that a lot.
 
 What I'm doing now: [jessejanderson.com/now](https://jessejanderson.com/now)
 
