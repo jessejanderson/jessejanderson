@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+I'm an ADHD Creative and you can find my lat
+
+What I'm doing now: [jessejanderson.com/now](https://jessejanderson.com/now)
+
+Where I'm active: [@jessejanderson](https://twitter.com/jessejanderson)
+
+
 <!--
 **jessejanderson/jessejanderson** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
