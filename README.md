@@ -4,6 +4,7 @@ I'm a writer, designer, developer, maker of things. I have ADHD and write about 
 
 Things I'm doing:
 
+- [Extra Focus: The Quick Start Guide to Adult ADHD](https://extrafocusbook.com)
 - [Extra Focus](https://extrafocus.com) • ADHD Newsletter
 - [The Weekly Build](https://theweeklybuild.com) podcast
 
@@ -11,9 +12,10 @@ Things I'm doing:
 
 Where I'm active:
 
-- Bluesky: [@adhdjesse.com](https://staging.bsky.app/profile/adhdjesse.com)
-- Twitter: [@adhdjesse](https://twitter.com/adhdjesse)
 - Instagram: [@adhdjesse](https://instagram.com/adhdjesse)
+- Threads: [@adhdjesse](https://www.threads.net/adhdjesse)
+- X (Twitter): [@adhdjesse](https://x.com/adhdjesse)
+- Bluesky: [@adhdjesse.com](https://bsky.app/profile/adhdjesse.com)
 - YouTube: [@adhdjesse](https://youtube.com/@adhdjesse)
 
 <!--
