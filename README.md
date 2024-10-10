@@ -6,14 +6,13 @@ Things I'm doing:
 
 - [Extra Focus: The Quick Start Guide to Adult ADHD](https://extrafocusbook.com)
 - [Extra Focus](https://extrafocus.com) • ADHD Newsletter
-- [The Weekly Build](https://theweeklybuild.com) podcast
 
-<!-- What I'm doing now: [jessejanderson.com/now](https://jessejanderson.com/now) -->
+<!-- What I'm doing now: [adhdjesse.com/now](https://adhdjesse.com/now) -->
 
 Where I'm active:
 
-- Instagram: [@adhdjesse](https://instagram.com/adhdjesse)
 - Threads: [@adhdjesse](https://www.threads.net/adhdjesse)
+- Instagram: [@adhdjesse](https://instagram.com/adhdjesse)
 - X (Twitter): [@adhdjesse](https://x.com/adhdjesse)
 - Bluesky: [@adhdjesse.com](https://bsky.app/profile/adhdjesse.com)
 - YouTube: [@adhdjesse](https://youtube.com/@adhdjesse)
